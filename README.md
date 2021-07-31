@@ -4,5 +4,5 @@
 스터디 정리  
 https://www.notion.so/woonsik/39ec5f04976546398af2f04286af0a63
 
-
+매주 돌아가면서 리더가 정리
 
